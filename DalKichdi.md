@@ -38,7 +38,7 @@
 - As you already soaked the dal last night in a sauce pan, all you need to do is put fire under it's ass and maybe add some water. I added more water when it started looking less soupy.
 - I placed the wooden spoon on top of it to prevent it from overflowing while boiling
 - Overcook this dal... but don't burn it. Again this will prevent you from burning your sofa with your farts 
-- 
+  
 ### Rice and Buckwheat 
 - Wash the rice again and again until the water is not muddy... are you even asian if you don't do this? if you're not asian, pls learn from us asians!
 - Add buckwheat and rinse again. 
