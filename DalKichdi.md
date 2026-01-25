@@ -51,7 +51,7 @@
 - Season it with salt, pepper and little more tumeric. Stir it
 - At some point, turn off the gas and cover it tightly with a lid and leave it.
 - NOW, make the tempering 
-- 
+  
 ### Tempering
 - Heat up the pan and make sure that it's dry
 - Add Olivia, don't be shy 
