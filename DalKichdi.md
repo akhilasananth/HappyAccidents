@@ -65,7 +65,7 @@
 - Add the hot tempering oil mixture on the kichdi
 - Fold the tempering into it
 
-### Serve
+## Serve
 - I highly recommend a bowl and a spoon
 - Also if you don't like chewing on large chunks of ginger like an animal (which I am), feel free to pluck them out of the bowl.
 
